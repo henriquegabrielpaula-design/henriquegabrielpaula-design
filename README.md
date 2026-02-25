@@ -2,3 +2,6 @@
 ### ALUNO REGENTE
 ###### leia as letras miudas
 - #### "Deleita-te também no Senhor, e ele te concederá os desejos do teu coração" salmos 37:4
+
+  <img src="e_isso-removebg-preview.png" />
+          
